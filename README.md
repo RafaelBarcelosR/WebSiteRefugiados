@@ -19,3 +19,4 @@ para passar as imagens, mas depois de muita pesquisa, obtive o exito
 ## primeira página web
 Sendo essa minha primeira página web completa, me surpreendi bastante com o resultado mas vi que ainda tenho muito o que aprender 
 e praticar, até a próxima. :)
+
